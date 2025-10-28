@@ -18,7 +18,3 @@ Obrigada por passar por aqui 💖 Espero que esse projeto te inspire e te arranq
 
 💗 Feito com amor,
 por Gerlany 🌸## Hi there 👋
-
-
-- ⚡ Fun fact: ...
--->
